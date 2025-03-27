@@ -1,4 +1,4 @@
-# Hey Everyone! I'm [![Chandra Sekhar Gonagada]](https://github.com/Gongadachandrasekhar1/) 👋
+# Hey Everyone! I'm [Chandra Sekhar Gonagada](https://github.com/Gongadachandrasekhar1/) 👋
 
 ### About Me
 - 🚀 I'm Seeking for the job Opportunity
